@@ -13,7 +13,7 @@
 
  📫 How to reach me **rana@dal.ca**
 
- 📄 Know about my experiences [resume.abhishekrana.ca](resume.abhishekrana.ca)
+ 📄 Know about my experiences [resume.abhishekrana.ca](https://resume.abhishekrana.ca)
 
 <h3 align="center">Connect with me:</h3>
 <p align="center">
